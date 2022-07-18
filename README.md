@@ -4,4 +4,4 @@
 
 
 
-Fiquei muito feliz quando recebi a bolsa e aproveitei ao máximo essa oportunidade, foi uma experiência incrível.
+Fiquei muito feliz quando recebi a bolsa e aproveitei ao máximo essa oportunidade, está sendo uma experiência incrível.
